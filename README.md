@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **basholat@gmail.com**
 
-<h3 align="left">Connect with me:  www.linkedin.com/in/bashirat-olatunji-13379967
+<h3 align="left">Connect with me:  www.linkedin.com
 <p align="left">
 </p>
 
